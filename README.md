@@ -1,5 +1,5 @@
 # 💫 About Me:
-./working_on/Minecraft_Plugins<br>./email/[joshua.saar@the-flames.de](mailto://joshua.saar@the-flames.de)<br>./discord/[TheFlames](https://dc.the-flames.de)<br>./upworks/creperozelot<br>./mcname/creperozelot<br>./dcname/creperozelot#8113
+./working_on/Minecraft_Plugins<br>./email/[mail@creperozelot.de](mailto://mail@creperozelot.de)<br>./discord/[TheFlames](https://dc.the-flames.de)<br>./upworks/creperozelot<br>./mcname/creperozelot<br>./dcname/@creperozelot
 
 
 ## 🌐 Socials:
